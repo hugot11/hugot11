@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hugot11 ..
-- like reading ..
+- like reading .
 - not true ..
   
   
